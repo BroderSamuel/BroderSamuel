@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BroderSamuel
+- 👀 I’m interested in the code
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on the code
+- 📫 How to reach me? Cease.
